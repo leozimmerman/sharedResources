@@ -1,5 +1,4 @@
-# Pitch divergence
-
+# Just rythm
 [![IMAGE ALT TEXT](http://img.youtube.com/vi/PhQHorG13lU/0.jpg)](https://youtu.be/PhQHorG13lU "Watch video")
 
 
